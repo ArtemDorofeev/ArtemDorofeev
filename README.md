@@ -17,6 +17,8 @@
 ### Контакты:
 
 - Мое резюме на HH.ru: [РЕЗЮМЕ](https://hh.ru/resume/f9b4134eff0b8007ee0039ed1f4362727a6162)
+- CV_online: https://flowcv.com/resume/sbd24asbiu
+- CV_pdf: https://disk.yandex.ru/i/AhnIcxCIB9_2cg
 - Телеграм: @Dorofeev_Artem
 - VK: https://vk.com/artemy13
 - E-mail: artmdor@gmail.com
